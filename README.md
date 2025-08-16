@@ -1,7 +1,6 @@
  ![profile views counter on GitHub](https://komarev.com/ghpvc/?username=xelxmyr&color=ffc95d)
- 
-![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view.svg?uid=315tra4pwssaluxb7nhifd5hjkq4&redirect=true][https://spotify-github-profile.kittinanx.com/api/view.svg?uid=315tra4pwssaluxb7nhifd5hjkq4&cover_image=true&theme=novatorem&show_offline=false&background_color=372912&interchange=true&bar_color=ffc217&bar_color_cover=true)
-
+ SHARING style, here is my style: 
+ ![image](https://discord.com/channels/@me/1151861786740543488/1406261217458262188)
 𝓐
 
 [𝑚𝑒𝑢 𝑎𝑛𝑔𝑒𝑙](https://translate.google.com/translate?u=https://projectsekai.fandom.com/wiki/Kagamine_Len&hl=vi&sl=en&tl=vi&client=srp]) 
