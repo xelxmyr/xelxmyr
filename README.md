@@ -1,4 +1,4 @@
-❗️oldfriends thì xoá hết style đã từng được share dùm mình, các bạn mặt dày vậy ạ? 
+❗️oldfriends thì xoá hết style đã từng được share dùm mình, đừng mặt dày nữa ạ..
 
 <p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=D58D53&style=flat-square&label=宁✦>
  
