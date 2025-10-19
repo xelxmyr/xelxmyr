@@ -1,7 +1,10 @@
-# ![9ef6dd70](https://github.com/user-attachments/assets/de37a025-ba4c-4c9c-95f5-c8c8fb9c8455)
+<p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=829173&style=flat-square&label=宁✦>
+ 
+# ![image](https://cdn.discordapp.com/attachments/1151861786740543488/1428273800604287068/IMG_7484.jpg?ex=68f1e722&is=68f095a2&hm=c354e1f26993554845bbbd6dc34dd7deeebd7ee27366640918530339c48d5a39&)
+ 　　 ✦ 我等了好久你始终都没出现
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31erq64dndfml3z3ml6s2qsvlkei&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31erq64dndfml3z3ml6s2qsvlkei&redirect=true)
-         
-✦  ᶦ  ᵈᵒⁿᵗ ᵗᵃˡᵏ ᵐᵘᶜʰ  |  ɪᴡᴄ  <img width="15" height="15" alt="dc298511" src="https://github.com/user-attachments/assets/bd26cca7-f678-474d-b258-124e7bdd5a0f" />
-
-![](https://komarev.com/ghpvc/?username=nytexir&style=plastic&color=a2cac3&label=✦)
+　　　再见一面我可以站得远一点
+   
+　　　满天飞雪把我心冷却
+   
+　　　想问问你最近过得怎么样 🎋
