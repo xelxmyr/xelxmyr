@@ -1,4 +1,4 @@
-<p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=E4C497&style=flat-square&label=宁✦>
+<p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=B2814E&style=flat-square&label=宁✦>
  
 ![IMG_8263](https://github.com/user-attachments/assets/d9694a68-e97c-407a-b93e-21841a6ed660)
 
