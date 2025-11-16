@@ -1,6 +1,7 @@
-<p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=B2814E&style=flat-square&label=宁✦>
+<p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=d0a570&style=flat-square&label=宁✦>
  
-![IMG_8263](https://github.com/user-attachments/assets/d9694a68-e97c-407a-b93e-21841a6ed660)
+![IMG_8815](https://github.com/user-attachments/assets/f05d8865-c734-4f4b-9d25-6f3841daaf09)
+
 
  　　 ✦ 我等了好久你始终都没出现
 
