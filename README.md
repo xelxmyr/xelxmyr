@@ -1,5 +1,2 @@
-
-           
-   ![](https://komarev.com/ghpvc/?username=xelxmyr&label=✦&color=d65a49)
+  ![](https://komarev.com/ghpvc/?username=xelxmyr&label=views&color=462821)![82F5DE9B-6412-49C8-9E0C-CC6031F0A2CD](https://github.com/user-attachments/assets/0ff5adb0-6613-4513-a0f2-f703c3762720)
  
-![IMG_9001](https://github.com/user-attachments/assets/a36debf5-1792-4da8-9db1-c61bf08f4757)
