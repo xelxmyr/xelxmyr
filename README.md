@@ -1,4 +1,6 @@
-<p align=center> <img src=https://komarev.com/ghpvc/?username=xelxmyr&color=d0a570&style=flat-square&label=✦>
+
+ 
+　<p align="center">![](https://komarev.com/ghpvc/?username=xelxmyr&label=໒꒰ྀི˶˙Ⱉ˙˶꒱ྀིა&color=d0a570)</p>
  
 ![IMG_8815](https://github.com/user-attachments/assets/f05d8865-c734-4f4b-9d25-6f3841daaf09)
 
