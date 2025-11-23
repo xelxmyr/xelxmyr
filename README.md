@@ -1,5 +1,4 @@
-
-　<p align="center">[ ✦ 𝓼𝓲𝓮𝓷𝓷𝓪](https://github.com/vague2ly)
+　　<p align="center">[ ✦ 𝓼𝓲𝓮𝓷𝓷𝓪](https://github.com/vague2ly)
     
   　　　　　　　　![](https://komarev.com/ghpvc/?username=xelxmyr&label=໒꒰ྀིっ-｡꒱ྀི১&color=db9866)
  
