@@ -1,14 +1,10 @@
+✦ 𝘢𝘯𝘥 𝘪 𝘴𝘮𝘪𝘭𝘦 
 
+𝘸𝘩𝘦𝘯 𝘪 𝘵𝘩𝘪𝘯𝘬 𝘰𝘧
+
+𝘢𝘭𝘭 𝘵𝘩𝘦 𝘵𝘪𝘮𝘦𝘴 𝘸𝘦 𝘩𝘢𝘥      
+             <p align="center">[ ✦ 𝑠𝑖𝑒𝑛𝑛𝑎](https://github.com/vague2ly) 
+    
+ ![](https://komarev.com/ghpvc/?username=xelxmyr&label=໒꒰ྀི˶˙Ⱉ˙˶꒱ྀིა&color=db9866)
  
-　<p align="center">![](https://komarev.com/ghpvc/?username=xelxmyr&label=໒꒰ྀི˶˙Ⱉ˙˶꒱ྀིა&color=d0a570)</p>
- 
-![IMG_8815](https://github.com/user-attachments/assets/f05d8865-c734-4f4b-9d25-6f3841daaf09)
-
-
- 　　 ✦ 我等了好久你始终都没出现
-
-　　　再见一面我可以站得远一点
-   
-　　　满天飞雪把我心冷却
-   
-　　　想问问你最近过得怎么样 🌾
+![IMG_9001](https://github.com/user-attachments/assets/a36debf5-1792-4da8-9db1-c61bf08f4757)
