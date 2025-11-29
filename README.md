@@ -2,9 +2,9 @@
 
 (ᵕ—ᴗ—) phiền mọi người đọc nó nhaaa
 
-mình khuyến khích mọi người nên tiếp xúc để đánh giá trực tiếp chứ đừng nghe bóng gió, mình xin nhắc lại là mình không hề chê skin/style ai, cũng không cắn đểu như lời một số người nói. 
+mình khuyến khích mọi người nên tiếp xúc để đánh giá trực tiếp chứ đừng nghe bóng gió, mình xin nhắc lại là mình không hề chê skin/style ai, cũng không cắn đểu như lời một số người nói. („• ֊ •„)
 
-Những chuyện chỉ người trong cuộc mới hiểu, bạn cần nên nghe từ hai phía. Mình không hoàn hảo hay thánh thiện quá đỗi nên đương nhiên đôi khi sẽ nói dăm ba câu đùa khiến bạn hiểu lầm ( vậy nên hãy giải quyết trực tiếp thay vì đi khóc với người khác rồi thêm mắm dặm muối vào lời nói của mình )
+Những chuyện chỉ người trong cuộc mới hiểu, bạn cần nên nghe từ hai phía. Mình không hoàn hảo hay thánh thiện quá đỗi nên đương nhiên đôi khi sẽ nói dăm ba câu đùa khiến bạn hiểu lầm ( vậy nên hãy giải quyết trực tiếp thay vì đi khóc với người khác rồi thêm mắm dặm muối vào lời nói của mình ) (๑•́ -•̀)
 
 mình chuộng việc xây dựng mối quan hệ thân thiết hơn là chỉ xã giao. Bên cạnh đó, mình không phải kiểu buông thả quá mức khi chưa thân, mình mong bạn kiểm soát những trò đùa trong giới hạn chấp nhận được 🌻
 
