@@ -6,7 +6,7 @@ mình khuyến khích mọi người nên tiếp xúc để đánh giá trực t
 
 Những chuyện chỉ người trong cuộc mới hiểu, bạn cần nên nghe từ hai phía. Mình không hoàn hảo hay thánh thiện quá đỗi nên đương nhiên đôi khi sẽ nói dăm ba câu đùa khiến bạn hiểu lầm ( vậy nên hãy giải quyết trực tiếp thay vì đi khóc với người khác rồi thêm mắm dặm muối vào lời nói của mình )
 
-mình chuộng việc xây dựng mối quan hệ thân thiết hơn là chỉ xã giao, nên chủ yếu sẽ dành thời gian cho bạn bè gần gũi, đối với bạn bè bth mình có đôi phần ít nói (mình đương nhiên sẽ cố gắng chủ động đến gần và bắt chuyện, nhưng nếu bạn không có ý định muốn đi sâu hơn một mqh bb bình thường thì cũng mong bạn đừng trách nhầm mình chảnh nếu thấy mình quá im) . Bên cạnh đó, mình không phải kiểu buông thả quá mức khi chưa thân, mình mong bạn kiểm soát những trò đùa trong giới hạn chấp nhận được 🌻
+mình chuộng việc xây dựng mối quan hệ thân thiết hơn là chỉ xã giao. Bên cạnh đó, mình không phải kiểu buông thả quá mức khi chưa thân, mình mong bạn kiểm soát những trò đùa trong giới hạn chấp nhận được 🌻
 
 mình chủ yếu treo máy, mọi người hãy dùng tin nhắn riêng để tương tác nha. Nếu mình không trả lời có lẽ mình không để ý, thật lòng xin lỗi, làm phiền bạn nhắn lại lần sau hoặc gửi mình username git (nếu có) của bạn để mình chủ động nhắn lại 🌾
 
