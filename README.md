@@ -1,6 +1,6 @@
   ![](https://komarev.com/ghpvc/?username=xelxmyr&label=views&color=462821)
 
-(ᵕ—ᴗ—) phiền mọi người đọc nó nhaaa ~~
+(ᵕ—ᴗ—) phiền mọi người đọc nó nhaaa
 
 mình khuyến khích mọi người nên tiếp xúc để đánh giá trực tiếp chứ đừng nghe bóng gió, mình xin nhắc lại là mình không hề chê skin/style ai, cũng không cắn đểu như lời một số người nói. 
 
