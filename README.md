@@ -1,6 +1,6 @@
   ![](https://komarev.com/ghpvc/?username=xelxmyr&label=views&color=462821)
 
-(ᵕ—ᴗ—) phiền mọi người đọc nó nhaaa
+(ᵕ—ᴗ—) phiền mọi người đọc nó
 
 Thừa nhận rằng quá khứ mình không trong sạch, cũng đã từng phát ngôn thiếu chuẩn mực nhưng nó đã qua lâu rồi. Mình cũng đã cố gắng cải thiện và thay đổi nên khuyến khích mọi người nên tiếp xúc với mình ở hiện tại để đánh giá trực tiếp chứ đừng nghe bóng gió, mình xin nhắc lại là mình không hề chê skin/style ai, cũng không cắn đểu như lời một số người nói. („• ֊ •„)
 
